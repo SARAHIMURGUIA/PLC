@@ -1,4 +1,4 @@
-# PLC
+# MURGUIA.CHAVEZ.NADIA.SARAHI
 Portafolio de actividades
 Murguia Chavez Nadia Sarahi
 5to  A Ing. Mecatronica.
